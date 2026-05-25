@@ -1,6 +1,6 @@
 ## 
 <ul>
-<img align="right" src="https://img.sanishtech.com/u/1cc1f7355b1170e544ae3258f2ea320b.png">
+<img align="right" src="https://img.sanishtech.com/u/5439d3cc42c9abad2eb1b49c073eddfd.png">
 <ul align="center">
   <h1><h align="center"> ${\textsf{\color{#E95D67}LEON(HARDT)/CAIN}}$ </h1>
 <li> ${\textsf{\color{Grey}she/her, 24 years, bisexual}}$</li>

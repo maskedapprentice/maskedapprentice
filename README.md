@@ -1,6 +1,6 @@
 ## 
 <ul>
-<img align="left" src="https://cdn.discordapp.com/attachments/643960659729711128/1510194703000277114/Untitled3136_20260525000557.png?ex=6a1bedeb&is=6a1a9c6b&hm=24a99ee0d0c67b2b6eb9e6c7c9b3228d6aa5a817988e37eff6fa73d3ff91876a&">
+<img align="left" src="https://cdn.discordapp.com/attachments/643960659729711128/1525786942686498887/Untitled3136_20260525000557.png?ex=6a54a752&is=6a5355d2&hm=fab24f38c7584242090c45ee70672dc53c734ce3ba4301a186b7232b8a92751b&">
 <ul align="center">
   <h1><h align="center"> ${\textsf{\color{#E95D67}(LEON)HARDT/CAIN}}$ </h1>
 <li> ${\textsf{\color{Grey}she/her, 24 years, bisexual}}$</li>
@@ -8,7 +8,7 @@
 <li>${\textsf{\color{Grey} i fucking love kazuma asougi }}$</li>
 <li> ${\textsf{\color{Grey} c+h is both welcome and encouraged}}$</li>
 </ul>
-     <img align="right" img src="https://cdn.discordapp.com/attachments/643960659729711128/1510194900782809129/Untitled3137_20260524235901.png?ex=6a1bee1a&is=6a1a9c9a&hm=2987338ee0fe82f303b185ec4244c49b22bdb99ca0e7ec3c5f6824732df09706&" /
+     <img align="right" img src="https://cdn.discordapp.com/attachments/643960659729711128/1525786952261963936/Untitled3137_20260524235901_1.png?ex=6a54a755&is=6a5355d5&hm=2862384e443641db5638757839cf6fa718fab886f5be71750ef9cf654dd95641&" /
 </p>
   
   #
